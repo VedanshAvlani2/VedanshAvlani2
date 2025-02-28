@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **Vedansh.Avlani@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1RE7vTKMB2NqyaOViXzb5RqDBnx37DzVw/view?usp=sharing](https://drive.google.com/file/d/1RE7vTKMB2NqyaOViXzb5RqDBnx37DzVw/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1RE7vTKMB2NqyaOViXzb5RqDBnx37DzVw/view?usp=sharing](Resume)
 
 - ⚡ Fun fact **I like to collect Hotwheels**
 
